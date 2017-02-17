@@ -1,0 +1,1 @@
+# Rappresentazione-in-3D_Giroscopio
